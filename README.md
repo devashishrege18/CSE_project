@@ -1,2 +1,3 @@
 # normie-
 learning github hahahaa...
+having fun too kinda!!
